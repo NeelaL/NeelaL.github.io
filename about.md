@@ -10,4 +10,4 @@ Things I do:
 My fav colours:
 
 1.black
-2.bluex
+2.blue
