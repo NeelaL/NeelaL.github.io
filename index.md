@@ -5,4 +5,4 @@ welcome to the dark website.
 
 Snakes are intresting, snakes are venomous. 
 
-  I SEE YOU EVEYWERE IM COMING FOR YOU.
+  I SEE YOU EVERYWERE IM COMING FOR YOU.
