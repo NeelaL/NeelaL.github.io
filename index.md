@@ -1,4 +1,4 @@
-## Welcome the dark website 
+## Welcome to my website
 [about me](about.md)
 Welcome to the dark website.
 In this website there will be links were you can learn about different animals click on the link on the aniaml you want to 
